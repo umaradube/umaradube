@@ -1,5 +1,5 @@
 # 💫 About Me:
-currenlty a richfield student studying Bsc in IT<br>Working on Websites as a freelancer <br>Learn as i go
+currenlty a richfield student studying Bsc in IT<br>Working on Websites as a consultant <br>Learn as I go
 
 
 ## 🌐 Socials:
